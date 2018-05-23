@@ -1,2 +1,0 @@
-# TransAmerica
-Sup my nibbas
